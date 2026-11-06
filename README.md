@@ -1,2 +1,2 @@
 
-I am Rohan pandey and this is my portfolio 
+I am Rohan pandey
